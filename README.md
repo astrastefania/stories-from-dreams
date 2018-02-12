@@ -10,3 +10,5 @@ Luckily the night is a never ending source of inspiration, and I have already a 
 Enjoy the reading and be patient if you're waiting for the next (or the first) one.
 
 Any feedback is welcome, be kind. 
+
+It's possible I'll update some drawings here and there too...
